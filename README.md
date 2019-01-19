@@ -1,3 +1,3 @@
-# prithv1.github.io
+# sayantan17.github.io
 
-For more details, visit <a href="http://prithv1.github.io">http://prithv1.github.io</a>
+For more details, visit <a href="http://sayantan17.github.io">http://sayantan17.github.io</a>
